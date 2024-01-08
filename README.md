@@ -1,0 +1,1 @@
+Executed a comprehensive capstone project leveraging my background as a Human Resources Manager to analyze employee retention data. Applied quantitative and qualitative analyses to derive actionable insights and strategies for optimizing workforce management, contributing to informed decision making
